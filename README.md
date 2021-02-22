@@ -1,2 +1,2 @@
 # exxercicio-1
-bababea
+ok por enquanto tá tudo tranquilo
